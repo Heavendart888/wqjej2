@@ -1,7 +1,3 @@
-# wqjej2!#jjsk
+# Contribution File
 
-d2ed23
-hhkkl
-Newq1
-auto
-kj
+Regarding Electronics Dynamite
